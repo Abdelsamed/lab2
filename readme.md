@@ -1,1 +1,1 @@
-![iti](./images (6).jpg)
+![iti](./images.jpg)
